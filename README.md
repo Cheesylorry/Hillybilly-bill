@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hillybilly-bill but you can also call me cheesy
+- 👋 Hi, I’m @Hillybilly-bill but you can also call me Cheesy
 - 👀 I’m interested in making my own products and learning new stuff
 - 🌱 I’m currently learning a lot
 - 💞️ I’m looking to collaborate on ur mom
